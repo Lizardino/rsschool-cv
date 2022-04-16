@@ -5,4 +5,4 @@
 5. -
 6. I had an experience with Dynamo Revit, modeling and adding data for the 3d model
 7. Master in Environmental Engineering
-8. My level of english is C1. I had a lot of practice in summer volunteer camps, living and studing abroad like in Belgium and Poland. Also enjoy all kind of content in english from books to podcasts.
+8. My level of english is C1. I had a lot of practice in summer volunteer camps, living and studing abroad like in Belgium and Poland. Also enjoy all kind of content in english from books to podcasts.Really like to speak myself and explore ablities of language.
