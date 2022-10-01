@@ -21,3 +21,11 @@ I enjoy doing new things and challenging myself. My goal this autumn and winter 
       </nav>
     </header>
 ```
+6. Experiense 
+-RS scholl
+7. Education
+- Warsaw University of Technology, master
+- RS school lectures
+8. English C1 
+Lots of languge schools, got a good practice in student exchanges and volunteering work in Spain, worked in a lab in Belgium, curently using english language at my work place.
+ 
