@@ -1,1 +1,1 @@
- https://Lizardino.github.io/rsschool-cv/cv in it
+ https://Lizardino.github.io/rsschool-cv/cv
